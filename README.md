@@ -1,4 +1,4 @@
-![Professional Graphic Designer, Digital Marketer and WordPress Designer](https://media.licdn.com/dms/image/D4E16AQGuY6yQnQriZg/profile-displaybackgroundimage-shrink_350_1400/0/1692631039187?e=1700697600&v=beta&t=8QymL589poyCmg2ilYOx9HHt7yAnuEjhgEEixkB7sAA)
+![Professional Graphic Designer, Digital Marketer and WordPress Designer](https://media.licdn.com/dms/image/D5616AQFj1n_OA0B_Ww/profile-displaybackgroundimage-shrink_350_1400/0/1695113343883?e=1700697600&v=beta&t=JarloFFa-nHYw1-B79B7FM_0Be0hBZdLuLbVb7lDXIU)
 
 ### Hi there 👋, I'm Md Sultanul Arifin
 #### Professional Graphic Designer, Digital Marketer and WordPress Designer
